@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rose26-teach
+- 👋 Hi, I’m Rosaura Lopez S.
 - 👀 I’m interested in: Cybersecurity projects and learning new tech skills .
 - 🌱 I’m currently learning: Basic of cybersecurity .
 - 💞️ I’m looking to collaborate on: Entry level cybersercurity projects and study groups.
